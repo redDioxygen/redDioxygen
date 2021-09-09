@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @redDioxygen
+- 👀 I’m interested in everything
+- 🌱 I’m currently learning java
+- 💞️ I’m looking to collaborate on anything
+- 📫 How to reach me redstoneguru24@gmail.com
